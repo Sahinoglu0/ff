@@ -1,6 +1,3 @@
-FaceFusion Unlocked (Bypass NSFW Filter) https://www.patreon.com/sdhassan
-
-
 FaceFusion
 ==========
 
